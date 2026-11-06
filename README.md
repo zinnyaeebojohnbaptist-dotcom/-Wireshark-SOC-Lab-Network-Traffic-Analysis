@@ -332,7 +332,6 @@ This laboratory is intended strictly for education purposes only.
 **Zinnya-eebo John Baptist**\
 Cybersecurity Intern
 
-LinkedIn: https://www.linkedin.com/public-profile/settings/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_self_edit_contact_info%3B%2BmZw%2B0kWRqG39m9fKMCppg%3D%3D
 
 ---
 
